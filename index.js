@@ -1,4 +1,3 @@
-lap na
-
+aa
 
 tui moi lam ne 
